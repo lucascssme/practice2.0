@@ -14,7 +14,7 @@
  
  <br>
  
-  ### Quer aprender mais sobre programção? Me segue nas redes sociais!
+  ### Me segue nas redes sociais pra ver mais!
  
 <div> 
  
